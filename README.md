@@ -48,7 +48,7 @@ Creemos en el conocimiento abierto y colaborativo. Puedes:
 ---
 
 ## 📫 Contacto
-
-**Facultad de Economía**  
-Pontificia Universidad Javeriana  
+**Pontificia Universidad Javeriana**
+Carrera 7 No. 40 - 62. Bogotá D.C., Colombia.
+Teléfono: (57-1) 320 8320 Ext. 5164 y 3663
 ✉️ generoyeconomia@javeriana.edu.co
